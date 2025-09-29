@@ -1,6 +1,7 @@
 # The Ghostface AI Trend: Revolutionizing Horror Content Creation in 2025
 
 - Try [Ghostface AI](https://bananaai.me/features/ghostface-ai)
+- Try [Ghostface AI](https://ghostfaceai.org)
 - Try [GhostFace AI Trend](https://ghostfaceaitrend.org/)
 - Try [Scream AI Picture](https://screamaipicture.org)
 
